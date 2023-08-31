@@ -1,1 +1,0 @@
-# gif-olusturucu-basit-kare
